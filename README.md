@@ -17,5 +17,8 @@
     &#x2764;
   </p> <!--)jekdowj-->
   <p>esse e o melhor momento da minha vida ^_^</p>
+  <p>pois foi em você que eu dei meu amor 💘 ❤,☺☺, e me entreguei a você por inteiro.e por isso eu dedico esse site a você amor.</p>
+  
 </body>
 </html>
+
